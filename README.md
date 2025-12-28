@@ -11,7 +11,7 @@
   <sub>$\text{\color{#FFFFFF}Andrew (preferred) or Mike. He/They}$\
   $\text{\color{#FFFFFFF}Fictionkin 𓈒⠀Unlabeled.⠀Fifteen}$
 
-  <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
+  <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit with me whenever. You don't have to ask.}$\
   $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
 ⠀\
   [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#FFFFFF}✦}$⠀ [prns.cc](https://pronouns.cc/@failuregirl)\
