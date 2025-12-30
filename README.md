@@ -15,5 +15,5 @@
   $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
 ⠀\
   [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#FFFFFF}✦}$⠀ [prns.cc](https://pronouns.cc/@starcourt)\
-   [atabook](https://andreil.atabook.org/)⠀ 
+   atabook⠀ 
 </div>
