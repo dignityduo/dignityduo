@@ -13,9 +13,9 @@
   $\text{\color{#B76E7D}Fictionkin⠀⠀﹕}$⠀ [01](https://strangerthings.fandom.com/wiki/Mike_Wheeler)$\text{\color{#B76E7D}、}$⠀[02](https://foxhole-court.fandom.com/wiki/Andrew_Minyard)⠀ $\text{\color{#B76E7D}+⠀ unlisted⠀ 𓎟𓎟}$
 
   
-  <sub>$\text{\color{#AE0724}C+H is always welcome, and I openly encourage people to come sit with me ̤̮}$\
-  $\text{\color{#79151A}I also have a heavy preference to speaking in whispers. Whisper me or I die}$\
-  $\text{\color{#AE0724}(Friends are excluded from this criteria)}$\
+  <sub>$\text{\color{#AE6D80}C+H is always welcome, and I openly encourage people to come sit with me ̤̮}$\
+  $\text{\color{#AE6D80}I also have a heavy preference to speaking in whispers. Whisper me or I die}$\
+  $\text{\color{#AE6D80}(Friends are excluded from this criteria)}$\
 ⠀\
   [rentry](https://rentry.co/bylerhate)⠀⠀ $\text{\color{#F6B6C0}✦}$⠀⠀ [pronouns.cc](https://pronouns.cc/@deathcure)\
   $\text{\color{#F6B6C0}sign}$⠀ [atabook](https://andreil.atabook.org/)⠀ $\text{\color{#F6B6C0}!}$
