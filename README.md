@@ -12,7 +12,7 @@ $\text{\color{#303A55}a͟n͟d͟r͟e͟w͟}$\
 $\text{\color{#31355A}he  ノ  him}$\
 \
 $\text{\color{#262C42}unlabeled  +  fictionkin}$\
-$\text{\color{#262C42}(⠀IDs⠀)}$   [01](https://foxhole-court.fandom.com/wiki/Andrew_Minyard)   [02](https://strangerthings.fandom.com/wiki/Mike_Wheeler)   \
+[01](https://foxhole-court.fandom.com/wiki/Andrew_Minyard)   [02](https://strangerthings.fandom.com/wiki/Mike_Wheeler)\
 $\text{\color{#262C42} 𓏵  as well as u͟n͟l͟i͟s͟t͟e͟d͟}$\
 \
 $\text{\color{#313757}c+h encouraged ◟  always w2i}$\
