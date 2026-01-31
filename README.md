@@ -7,10 +7,14 @@ $\text{\color{#303A55}a͟n͟d͟r͟e͟w͟}$\
 $\text{\color{#31355A}he  ノ  him}$\
 \
 $\text{\color{#262C42}unlabeled  𓏵  fictionkin}$\
-$\text{\color{#313757}c+h strongly encouraged ◟}$\
+$\text{\color{#262C42}c+h strongly encouraged ◟}$\
 \
 $\text{\color{#313757}(W2I : i'm mostly offtab + i}$\
 $\text{\color{#313757}rarely check public chat)}$\
+\
+$\text{\color{#262C42}i also change my github a LOT since i often}$\
+$\text{\color{#262C42}get bored of my theme within days.}$\
+$\text{\color{#262C42}i know it confuses people a lot ( • ᴖ • ｡)}$\
 \
 $\text{\color{#6F8FA4}۶ৎ ⠀ ⠀⠀౿⠀⠀，}$\
  <p align="center">
