@@ -14,7 +14,8 @@ $\text{\color{#B9A32B}w2i — almost always offtab}$\
 $\text{\color{#B9A32B}or sign my ata instead}$\
 \
 \
-[rentry](https://rentry.co/aldenprice)   ‣   [ata](https://aldennci.atabook.org/)   ‣   [prns.cc](https://pronouns.cc/@alden)
+[rentry](https://rentry.co/aldenprice)   ‣   [ata](https://aldennci.atabook.org/)   ‣   [prns.cc](https://pronouns.cc/@alden)\
+[shared .co](https://rentry.co/_rgbtrio)
 \
 \
 \
