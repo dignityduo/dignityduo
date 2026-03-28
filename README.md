@@ -1,16 +1,14 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=shypills&color=7A316C&label=+++lurkers+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=90502C&label=+++visitors+++𓈒+++)\
+\
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospace&weight=100&size=14&duration=2500&pause=1000&color=AD9C70&center=true&vCenter=true&multiline=true&width=435&height=90&lines=andrew+-+15;he+%E3%83%8E+him;public+chat+off;always+w2i" alt="Typing SVG" /></a>
 \
 \
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Monospace&weight=100&size=14&duration=2500&pause=1000&color=E7BD84&center=true&vCenter=true&multiline=true&width=435&height=80&lines=%22But+who+am+I+to+kill+for;the+crime+of+being+small?%22" alt="Typing SVG" /></a>
+$\text{\color{#90502C}──────── ⠀✶⠀ ────────}$\
 \
-\
-$\text{\color{#7D3273}──────── ⠀✶⠀ ────────}$\
-\
-\
-<sub>[rentry](https://rentry.co/andrewdoe)      [atabook](https://sundozed.atabook.org/)      [pronouns.cc](https://pronouns.cc/@alden)      [shared rentry](https://rentry.co/_rgbtrio)</sub>\
+<sub>[rentry](https://rentry.co/andrewdoe)      [atab](https://sundozed.atabook.org/)      [pronouns.cc](https://pronouns.cc/@alden)</sub>\
 ⠀
 ⠀
 
